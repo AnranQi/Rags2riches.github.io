@@ -1,3 +1,3 @@
-# Rigs2riches Project Page
+# Rags2riches Project Page
 
 
